@@ -1,2 +1,2 @@
 # My_BDIC_assignment
-I am a genius！！
+I am a genius
